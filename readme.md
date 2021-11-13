@@ -1,0 +1,1 @@
+opis projektu z 13.11.2021
